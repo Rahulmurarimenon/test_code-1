@@ -1,1 +1,4 @@
-# test_code-1
+Rahul Murari 
+Doing BBA 
+Interested in learning digital marketing 
+My hobbies include reading newspapers watching movies
